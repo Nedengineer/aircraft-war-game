@@ -12,3 +12,10 @@ Talking approximately the gameplay of the system, the gambling strategies are to
 
 # SCREENSHOTS:
 
+![1111](https://user-images.githubusercontent.com/93034609/152577923-ebca361e-95a8-4222-a7fc-65916b82a12b.png)
+
+
+![2222](https://user-images.githubusercontent.com/93034609/152577937-a4d84167-c5ae-4115-8b7f-cd5147c693d9.png)
+
+
+
